@@ -1,2 +1,0 @@
-# pc
-İsmailyavas09
